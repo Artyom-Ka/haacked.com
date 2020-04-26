@@ -1,0 +1,16 @@
+---
+title: Woman sues over Janet Jackon's breast (Reuters)
+tags: [news]
+redirect_from: "/archive/2004/02/05/woman-sues-over-janet-jackons-breast-reuters.aspx/"
+---
+
+Oh my fucking lord...
+
+> Reuters - A Tennessee woman has filed a class action suit against
+> Janet Jackson and others involved in her breast-baring Super Bowl
+> halftime show, saying millions of people are owed monetary damages for
+> exposure to lewd conduct.
+
+*[Via [Yahoo! News - Oddly
+Enough](http://us.rd.yahoo.com/dailynews/rss/757/*http://story.news.yahoo.com/news?tmpl=story2&u=/nm/20040206/od_uk_nm/oukoe_media_jackson)]*
+
